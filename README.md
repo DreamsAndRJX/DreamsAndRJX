@@ -1,4 +1,4 @@
-## blinkies, few of my fav things *(none r owned by me, reverse search!)*
+## blinkies, few of my fav things *(none r owned by me, all om tumblr!)*
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d0e44651-c5ae-4709-af0a-706bb48a3636" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5c45aa96-e279-49c6-9775-8f461a15ece4" />
