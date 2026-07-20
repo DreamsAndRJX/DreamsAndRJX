@@ -22,7 +22,7 @@
 <p align="Center"> <img width="250" height="60" alt="tumblr_d7061e3e669b144c50fe5c4b71731008_827c57f8_640" src="https://github.com/user-attachments/assets/fb141caf-4647-452b-a5b3-1e20ed8aba54" /> </p>
 
 <p align="Center"> $${\color{#61ded1}Go\ to\ my\ websites\ for\ more\ specified\ info\ about\ me,\ I\ also\ create\ a\ lot\ of\ art\ but\ don't\ post\ it\ much!}$$ </p>
-<p align="Center"> $${\color{#61ded1}If\ all\ else,feel\ free\ to\ DM\ me\ or\ ask\ me\ wherever\ you\ meet\ me\ for\ anymore\ info\ that\ you\ want\ to\ learn\ about.}$ $</p>
+<p align="Center"> $${\color{#61ded1}If\ all\ else,feel\ free\ to\ DM\ me\ or\ ask\ me\ wherever\ you\ meet\ me\ for\ anymore\ info\ that\ you\ want\ to\ learn\ about.}$$ </p>
 <br/>
 <p align="Center"> $${\color{#002576}love\ yourself\ as\ who\ you\ are,\ always\ get\ better!}$$ </p>
 <br/>
