@@ -1,19 +1,11 @@
-<p align="Center"> <img width="350" height="500" alt="image" src="https://github.com/user-attachments/assets/c72f0b02-190b-4647-b9e4-c25b660f02be" /> </p>
-
-<br/>
-
-<p align="Center"> $${\color{#002576} "HOTLINE\ MIAMI"\ FANATIC! }$$ </p>
-<p align="Center"> DreamsAndRJX across most sites, including ATABOOK. Basic DNI. </p>
+<p align="Center"> hotline miami + madness combat fanatic </p>
+<p align="Center"> $${\color{#002576} ⊹ ࣪ ˖ ໒꒱ }$$ </p>
+<p align="Center"> DreamsAndRJX across most sites, basic dni </p>
 <br/>
 
 <img width="2025" height="27" alt="image" src="https://github.com/user-attachments/assets/0ecd103b-32de-45ba-8fec-f213ee91b781" />
 
 <br/>
-<br/>
-
-<p align="Center"> $${\color{#002576} I\ will\ debate\ topics\ that\ intruige\ me\ or\ concern\ me,\ even\ if\ not\ directly\ involved. }$$ </p>
-<p align="Center"> $${\color{#61ded1} I\ want\ to\ know\ more:\ I\ oftentimes\ have\ personallity\ changes\ /\ different\ reactions\ to\ the\ same\ things. }$$ </p>
-
 <br/>
 
 <p align="Center"> <img width="250" height="60" alt="tumblr_d7061e3e669b144c50fe5c4b71731008_827c57f8_640" src="https://github.com/user-attachments/assets/fb141caf-4647-452b-a5b3-1e20ed8aba54" /> </p>
