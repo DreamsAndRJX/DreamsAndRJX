@@ -5,7 +5,7 @@
 
 <p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan  </p>
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
-<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign my [ATAbook](https://dreamsandrjx.atabook.org) </p>
+<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign my ATA! </p>
 
 <br/>
 
