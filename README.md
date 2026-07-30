@@ -1,6 +1,4 @@
-<p align="Center"> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Dokdo&size=35&pause=1000&color=140E20&width=435&lines=yellow+fucking+sneer)](https://git.io/typing-svg) </p>
-
-<img width="1280" height="448" alt="image (4)_PhotoGrid" src="https://github.com/user-attachments/assets/5359e021-9488-4588-b1ec-87e667dcb1ac" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dokdo&size=35&pause=1000&color=140E20&center=true&vCenter=true&width=1280&lines=yellow+fucking+sneer%2C;what+a+lie+you+are.)](https://git.io/typing-svg)<img width="1280" height="448" alt="image (4)_PhotoGrid" src="https://github.com/user-attachments/assets/5359e021-9488-4588-b1ec-87e667dcb1ac" />
 
 <br/>
 <br/>
