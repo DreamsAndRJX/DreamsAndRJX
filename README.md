@@ -6,6 +6,7 @@
 <p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan  </p>
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 <p align="Center"> DreamsAndRJX across most sites, basic dni </p>
+<p align="Center"> ![money gambled](https://komarev.com/ghpvc/?username=DreamsAndRJX&color=5d5e59)
 
 <br/>
 <br/>
