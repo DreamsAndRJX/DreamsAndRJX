@@ -8,7 +8,6 @@
 <p align="Center"> DreamsAndRJX across most sites, basic dni </p>
 
 <br/>
-<br/>
 
 <img width="1280" height="646" alt="image (3)_PhotoGrid" src="https://github.com/user-attachments/assets/83845ed6-9a78-46dc-b383-2a842233b38c" />
 
