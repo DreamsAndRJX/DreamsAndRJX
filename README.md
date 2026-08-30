@@ -6,8 +6,9 @@
 
 <p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan  </p>
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
-<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE! (be careful of who's you sign.) </p>
-
+<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! (be careful of who's you sign.) </p>
+<p align="Center"> IWC/IWEC please. I will make uncomfortable jokes and say stupid shit so do please tell me if ur uncomfortable, I say slurs I can reclaim and can only reclaim. Tell me if I make you uncomfortable or mad ^^ </p>
+,.
 <br/>
 
 <img width="1280" height="646" alt="image (3)_PhotoGrid" src="https://github.com/user-attachments/assets/83845ed6-9a78-46dc-b383-2a842233b38c" />
