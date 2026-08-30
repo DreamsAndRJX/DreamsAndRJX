@@ -4,17 +4,28 @@
 
 <br/>
 
-<p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan  </p>
+<p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan !!!!  </p>
+
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
-<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! (be careful of who's you sign.) </p>
-<p align="Center"> IWC/IWEC please. I will make uncomfortable jokes and say stupid shit so do please tell me if ur uncomfortable, I say slurs I can reclaim and can only reclaim. Tell me if I make you uncomfortable or mad ^^ </p>
-,.
+
+<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! </p>
+
+<p align="Center"> IWC/IWEC please. I will make uncomfortable jokes and say mild bullshit so do please tell me if you're uncomfortable. I say slurs I can reclaim and can only reclaim, i'm not some bigot or a dipshit. </p>
+
 <br/>
 
 <img width="1280" height="646" alt="image (3)_PhotoGrid" src="https://github.com/user-attachments/assets/83845ed6-9a78-46dc-b383-2a842233b38c" />
 
 <br/>
 <br/>
+
+<p align="Center"> I might act paranoid at times or simply want to cuddle and not chat, that's ok! Nobody has done anything wrong and I might simply be doing art or talking with other friends. </p>
+<p align="Center"> Radinculous, Anti-bad shit, Judgement/Paranoia prone, Fandom DNI, <13 IWEC or DNI at all, I'm not weird. </p>
+
+<br/>
+
+<img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
+
 <br/>
 <br/>
 
