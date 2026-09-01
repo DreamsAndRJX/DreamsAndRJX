@@ -12,14 +12,20 @@
 
 <div align="center">
 <details>
-<summary> extra info </summary>
+<summary> extra info on me </summary>
 
 IWC/IWEC please. I will make uncomfortable jokes and say mild bullshit so do please tell me if you're uncomfortable.
 <br/>
-I say slurs I can reclaim and can only reclaim, I'm not some bigot or a dipshit.
 <br/>
-Radinculous, Anti-bad shit, Judgement/Paranoia prone, Fandom DNI, <13 IWEC or DNI at all, I'm not weird.
-
+I say slurs I can reclaim and can only reclaim. If you can say slurs and reclaim them, I don't mind even if it's directed at me!
+<br/>
+<br/>
+Radinculous, Judgement/Paranoia prone, SOME Fandoms DNI, <13 IWEC or DNI at all, I'm not weird towards young young people.
+<br/>
+<br/>
+I will sit with my friend's friends if there's a line or something, even simply a cuddle group ( Do whisper if you want me to move so I can see it, I respect boundaries ❤ ) 
+<br/>
+PSA, don't harass anyone I follow or the people themselves unless they're malignant beyond belief and do inform me.
 
 </details>
 </div>
@@ -30,9 +36,6 @@ Radinculous, Anti-bad shit, Judgement/Paranoia prone, Fandom DNI, <13 IWEC or DN
 
 <br/>
 <br/>
-
-<p align="Center"> I might act paranoid at times or simply want to cuddle and not chat, that's ok! Nobody has done anything wrong and I might simply be doing art or talking with other friends. </p>
-
 <br/>
 
 <img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
