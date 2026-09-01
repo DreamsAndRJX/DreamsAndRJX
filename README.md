@@ -14,18 +14,18 @@
 <details>
 <summary> extra info on me </summary>
 
-IWC/IWEC please. I will make uncomfortable jokes and say mild bullshit so do please tell me if you're uncomfortable.
+IWC/IWEC please. I say bullshit.
 <br/>
 <br/>
-I say slurs I can reclaim and can only reclaim. If you can say slurs and reclaim them, I don't mind even if it's directed at me!
+I say slurs I can reclaim and can only reclaim. If you can reclaim idc!
 <br/>
 <br/>
-Radinculous, Judgement/Paranoia prone, SOME Fandoms DNI, <13 IWEC or DNI at all, I'm not weird towards young young people.
+Radinculous, Judgement prone, SOME Fandoms DNI, <13 IWEC or DNI at all.
 <br/>
 <br/>
-I will sit with my friend's friends if there's a line or something, even simply a cuddle group ( Do whisper if you want me to move so I can see it, I respect boundaries ❤ ) 
+I will sit with my friend's friends if there's a line or group
 <br/>
-PSA, don't harass anyone I follow or the people themselves unless they're malignant beyond belief and do inform me.
+( Do whisper if you want me to move so I can see it, I respect boundaries ) 
 
 </details>
 </div>
