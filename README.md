@@ -10,7 +10,19 @@
 
 <p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! </p>
 
-<p align="Center"> IWC/IWEC please. I will make uncomfortable jokes and say mild bullshit so do please tell me if you're uncomfortable. I say slurs I can reclaim and can only reclaim, i'm not some bigot or a dipshit. </p>
+<div align="center">
+<details>
+<summary> extra info </summary>
+
+IWC/IWEC please. I will make uncomfortable jokes and say mild bullshit so do please tell me if you're uncomfortable.
+<br/>
+I say slurs I can reclaim and can only reclaim, I'm not some bigot or a dipshit.
+<br/>
+Radinculous, Anti-bad shit, Judgement/Paranoia prone, Fandom DNI, <13 IWEC or DNI at all, I'm not weird.
+
+
+</details>
+</div>
 
 <br/>
 
@@ -20,7 +32,6 @@
 <br/>
 
 <p align="Center"> I might act paranoid at times or simply want to cuddle and not chat, that's ok! Nobody has done anything wrong and I might simply be doing art or talking with other friends. </p>
-<p align="Center"> Radinculous, Anti-bad shit, Judgement/Paranoia prone, Fandom DNI, <13 IWEC or DNI at all, I'm not weird. </p>
 
 <br/>
 
