@@ -12,9 +12,9 @@
 
 <div align="center">
 <details>
-<summary> extra info on me </summary>
+<summary> xtra info </summary>
 
-IWC/IWEC please. I say bullshit.
+IWC/IWEC please. I say shit.
 <br/>
 <br/>
 I say slurs I can reclaim and can only reclaim. If you can reclaim idc!
@@ -23,9 +23,84 @@ I say slurs I can reclaim and can only reclaim. If you can reclaim idc!
 Radinculous, Judgement prone, SOME Fandoms DNI, <13 IWEC or DNI at all.
 <br/>
 <br/>
-I will sit with my friend's friends if there's a line or group
+I will sit with my friend's friends if there's a line or group.
+
+</details>
+</div>
+
+<div align="center">
+<details>
+<summary> SOME fandoms </summary>
+
+madness combat
 <br/>
-( Do whisper if you want me to move so I can see it, I respect boundaries ) 
+dandys world
+<br/>
+hotline miami
+<br/>
+graphwar
+<br/>
+jazzpunk
+<br/>
+construction
+<br/>
+running with scissors
+<br/>
+phighting
+<br/>
+white knuckle
+<br/>
+outlast trials
+<br/>
+toy soldiers
+<br/>
+blood debt
+<br/>
+the butchery
+<br/>
+team fortress 2
+<br/>
+hellmet
+<br/>
+pink valley
+<br/>
+the batman (2022)
+<br/>
+bear (alpha)
+<br/>
+mugen
+<br/>
+chemlab
+<br/>
+death penalty
+<br/>
+puppet combo
+<br/>
+IMSCARED
+<br/>
+undertale
+<br/>
+nullscape
+<br/>
+minesweeper
+<br/>
+databrawl
+<br/>
+cry of fear
+<br/>
+yume nikki / 2kki
+<br/>
+kingdom tales
+<br/>
+targaot
+<br/>
+town
+<br/>
+hunting game
+<br/>
+facility
+<br/>
+wmfpg?
 
 </details>
 </div>
