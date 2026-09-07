@@ -4,107 +4,45 @@
 
 <br/>
 
-<p align="Center"> hotline miami + madness combat fanatic, marcelo's #1 fan !!!!  </p>
+
+ <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" />   hotline miami + madness combat fanatic, marcelo's #1 fan !!!! <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
 <p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! </p>
 
+<br/>
+
+<img width="3000" height="40" alt="tumblr_7455b3a6beee6b0c11f7b6cfd5d95327_da3e1d3d_2048" src="https://github.com/user-attachments/assets/455e96dd-ec43-4c0d-bda4-7069904bad03" />
+
+<br/>
+<br/>
+<br/>
+
 <div align="center">
 <details>
 <summary> xtra info </summary>
 
-IWC/IWEC please. I say shit.
-<br/>
-<br/>
-I say slurs I can reclaim and can only reclaim. If you can reclaim idc!
-<br/>
-<br/>
-Radinculous, Judgement prone, SOME Fandoms DNI, <13 IWEC or DNI at all.
-<br/>
-<br/>
-I will sit with my friend's friends if there's a line or group.
+<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general or when rushing. No means to be rude but it's a possiblity. </p>
+<p align="Right"> Marcelo from "Bridge Mankind Collapse" : major fan. </p>
+<p align="Left"> Radinculous, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all. </p>
+<p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
 
 </details>
 </div>
+
+<br/>
 
 <div align="center">
 <details>
-<summary> SOME fandoms </summary>
+<summary> fandoms blinkies </summary>
 
-madness combat
-<br/>
-dandys world
-<br/>
-hotline miami
-<br/>
-graphwar
-<br/>
-jazzpunk
-<br/>
-construction
-<br/>
-running with scissors
-<br/>
-phighting
-<br/>
-white knuckle
-<br/>
-outlast trials
-<br/>
-toy soldiers
-<br/>
-blood debt
-<br/>
-the butchery
-<br/>
-team fortress 2
-<br/>
-hellmet
-<br/>
-pink valley
-<br/>
-the batman (2022)
-<br/>
-bear (alpha)
-<br/>
-mugen
-<br/>
-chemlab
-<br/>
-death penalty
-<br/>
-puppet combo
-<br/>
-IMSCARED
-<br/>
-undertale
-<br/>
-nullscape
-<br/>
-minesweeper
-<br/>
-databrawl
-<br/>
-cry of fear
-<br/>
-yume nikki / 2kki
-<br/>
-kingdom tales
-<br/>
-targaot
-<br/>
-town
-<br/>
-hunting game
-<br/>
-facility
-<br/>
-wmfpg?
+some blinkies will go here soon <3
 
 </details>
 </div>
 
+<br/>
 <br/>
 
 <img width="1280" height="646" alt="image (3)_PhotoGrid" src="https://github.com/user-attachments/assets/83845ed6-9a78-46dc-b383-2a842233b38c" />
