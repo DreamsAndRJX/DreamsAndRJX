@@ -5,11 +5,11 @@
 <br/>
 
 
- <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" />   hotline miami + madness combat fanatic, marcelo's #1 fan !!!! <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
+ <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" /> &nbsp; madness combat fanatic, marcelo's fan !!!! &nbsp; <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, basic dni. Sign ATA and check STRAWPAGE, all linked! </p>
+<p align="Center"> DreamsAndRJX across most sites, basic dni. stuff is linked! </p>
 
 <br/>
 
@@ -21,7 +21,8 @@
 
 <div align="center">
 <details>
-<summary> xtra info </summary>
+<summary> $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" />
+ </summary>
 
 <p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general or when rushing. No means to be rude but it's a possiblity. </p>
 <p align="Right"> Marcelo from "Bridge Mankind Collapse" : major fan. </p>
@@ -35,9 +36,11 @@
 
 <div align="center">
 <details>
-<summary> fandoms blinkies </summary>
+<summary> <img width="20" height="20" alt="tumblr_661b219e0290c5ac87d4b98d315f50b8_c45f29d1_75" src="https://github.com/user-attachments/assets/b7ece33d-d6ef-4ac9-a838-7fc6dfb71a8e" /> &nbsp; $${\color{#002576} other }$$ </summary>
 
-some blinkies will go here soon <3
+<br/>
+
+<img width="374" height="281" alt="tumblr_9998c3f1435ace9df1ca0157953c61f2_6908dee0_400" src="https://github.com/user-attachments/assets/d632d985-0180-467d-a23b-aef55f3e13b3" />
 
 </details>
 </div>
