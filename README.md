@@ -54,9 +54,34 @@
 <br/>
 <br/>
 
-<img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
+<div align="center">
+<details>
+<summary> $${\color{#002576} links }$$ &nbsp; <img width="20" height="20" alt="tumblr_8c8ff24da1159bda753995bc55cb822f_878662f1_75" src="https://github.com/user-attachments/assets/e6148af1-e608-44d6-b258-6c962a64525f" />   </summary>
+
+<br/>
+
+<p align="Left"> $${\color{#002576} guns\ .\ lol }$$ : https://guns.lol/dreamsandrjx &nbsp; &nbsp; <img width="20" height="20" alt="tumblr_d2ded3cbe21eb4cf26a2f31aaac436a9_af1bcd82_75" src="https://github.com/user-attachments/assets/11d10cfa-c275-4b21-9e15-32be5402218f" /> </p>
+<p align="Right"> <img width="20" height="20" alt="tumblr_f86fc111b691fe8407c6c06fda60e590_322bfb68_75" src="https://github.com/user-attachments/assets/78aeb55e-0df9-40c0-8618-9625315c8478" />
+ &nbsp; &nbsp; https://en.pronouns.page/@DreamsAndRJX :  $${\color{#002576} pronouns\ .\ page }$$ </p>
+<p align="Left"> $${\color{#002576} straw\ .\ page }$$ : https://dreamsandrjx.straw.page &nbsp; &nbsp; <img width="20" height="20" alt="tumblr_12cd2a76e86d613f652c2101182a777c_0cff5896_75" src="https://github.com/user-attachments/assets/efc09378-355a-4bd0-9996-2a4488947933" />
+ </p>
+<p align="Right"> <img width="20" height="20" alt="tumblr_b8429efce65e32735a0c4d3f684e2ef1_27985d72_75" src="https://github.com/user-attachments/assets/ebff2942-a2cf-45fb-8bc5-a6fb9a1470d0" />
+ &nbsp; &nbsp; https://dreamsandrjx.atabook.org/ : $${\color{#002576} ata\ .\ book }$$ </p>
+<p align="Left">  </p>
+<p align="Right">  </p>
+
+</details>
+</div>
+
 
 <br/>
 <br/>
 
 <img width="1280" height="641" alt="image (2)_PhotoGrid" src="https://github.com/user-attachments/assets/fbad7c86-d5ef-4fb3-bd88-b2271f0eaa29" />
+
+<br/>
+<br/>
+<br/>
+
+<img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
+
