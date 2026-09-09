@@ -69,6 +69,18 @@
 <br/>
 <br/>
 
+<div align="center">
+<details>
+<summary> $${\color{#002576} awards }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" />
+ </summary>
+
+<p align="center"> <img width="376" height="45" alt="image" src="https://github.com/user-attachments/assets/e21a484e-6a4f-4e28-8359-db21f9a6b272" /> </p>
+
+
+
+<br/>
+<br/>
+
 <img width="1280" height="641" alt="image (2)_PhotoGrid" src="https://github.com/user-attachments/assets/fbad7c86-d5ef-4fb3-bd88-b2271f0eaa29" />
 
 <br/>
