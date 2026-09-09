@@ -65,6 +65,7 @@
  </p>
 <p align="Right"> <img width="20" height="20" alt="tumblr_b8429efce65e32735a0c4d3f684e2ef1_27985d72_75" src="https://github.com/user-attachments/assets/ebff2942-a2cf-45fb-8bc5-a6fb9a1470d0" />
  &nbsp; &nbsp; https://dreamsandrjx.atabook.org/ : $${\color{#002576} ata\ .\ book }$$ </p>
+ 
 
 <br/>
 <br/>
@@ -75,7 +76,8 @@
 
 <p align="center"> <img width="376" height="45" alt="image" src="https://github.com/user-attachments/assets/e21a484e-6a4f-4e28-8359-db21f9a6b272" /> </p>
 
-
+</details>
+</div>
 
 <br/>
 <br/>
