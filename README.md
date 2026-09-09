@@ -54,9 +54,7 @@
 <br/>
 <br/>
 
-<div align="center">
-<details>
-<summary> $${\color{#002576} links }$$ &nbsp; <img width="20" height="20" alt="tumblr_8c8ff24da1159bda753995bc55cb822f_878662f1_75" src="https://github.com/user-attachments/assets/e6148af1-e608-44d6-b258-6c962a64525f" />   </summary>
+<p align="Center"> $${\color{#002576} links }$$ &nbsp; <img width="20" height="20" alt="tumblr_8c8ff24da1159bda753995bc55cb822f_878662f1_75" src="https://github.com/user-attachments/assets/e6148af1-e608-44d6-b258-6c962a64525f" </p>
 
 <br/>
 
@@ -67,12 +65,6 @@
  </p>
 <p align="Right"> <img width="20" height="20" alt="tumblr_b8429efce65e32735a0c4d3f684e2ef1_27985d72_75" src="https://github.com/user-attachments/assets/ebff2942-a2cf-45fb-8bc5-a6fb9a1470d0" />
  &nbsp; &nbsp; https://dreamsandrjx.atabook.org/ : $${\color{#002576} ata\ .\ book }$$ </p>
-<p align="Left">  </p>
-<p align="Right">  </p>
-
-</details>
-</div>
-
 
 <br/>
 <br/>
