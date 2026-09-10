@@ -75,6 +75,8 @@
 <summary> <img width="20" height="20" alt="tumblr_91f090a37b17c318bc120da271a7083f_8bee8734_75" &nbsp; src="https://github.com/user-attachments/assets/15af1c67-9bda-446c-9578-bfc6973c5ed4" /> $${\color{#002576} awards }$$ </summary>
 
 <p align="center"> <img width="376" height="45" alt="image" src="https://github.com/user-attachments/assets/e21a484e-6a4f-4e28-8359-db21f9a6b272" /> </p>
+<p align="center">  <img width="209" height="31" alt="image" src="https://github.com/user-attachments/assets/ec6dcfe9-ac05-4c0b-9c58-4e4f6418a9e2" /> </p>
+
 
 </details>
 </div>
