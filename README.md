@@ -29,7 +29,7 @@
 <p align="Right"> Marcelo from $${\color{#002576}"Bridge\ Mankind\ Collapse"}$$ : major fan. </p>
 <p align="Left"> Radinclus, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all. </p>
 <p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
-<p align="Left"> rad/pro/dark/harmful paraphiles. $${\color{#002576}all}$$ the same.</p>
+<p align="Left"> $${\color{#002576} MAJOR\ DNI }$$ radqueer/proship/darkship/harmful paraphiles. $${\color{#002576} all }$$ the same.</p>
 
 </details>
 </div>
