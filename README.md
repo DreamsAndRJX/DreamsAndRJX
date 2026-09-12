@@ -27,7 +27,7 @@
 
 <p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general or when rushing. No means to be rude but it's a possiblity. </p>
 <p align="Right"> Marcelo from "Bridge Mankind Collapse" : major fan. </p>
-<p align="Left"> Radinculous, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all. </p>
+<p align="Left"> Radinclus, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all. </p>
 <p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
 
 </details>
