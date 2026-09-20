@@ -10,7 +10,7 @@
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
 <p align="Center"> DreamsAndRJX across most sites, basic dni. stuff is linked! 
-<p align="Center"> Back into studying psychology + chemistry + humanities, usually gone most the day. </p>
+<p align="Center"> Back into studying psychology + chemistry + humanities, usually gone most the day so I might not be active 😓. </p>
 
 <br/>
 
