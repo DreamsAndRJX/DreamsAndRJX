@@ -31,7 +31,9 @@
 <p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
 <p align="Left"> $${\color{#002576} MAJOR\ DNI }$$ radqueer/proship/darkship/harmful paraphiles. $${\color{#002576} all }$$ the same. </p>
 <p align="Right"> I follow $${\color{#002576} main }$$ accounts back, not checking unless I explicity don't trust you. </p>
+<p align="Left"> I don't support the creators of media I enjoy $${\color{#002576} (dandys world,\ etc.,) }$$ and may also just make fits for looks. </p>
 
+ 
 </details>
 </div>
 
