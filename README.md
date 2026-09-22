@@ -43,7 +43,17 @@
 
 <br/>
 
+<p align="Center"> bridge mankind collapse </p>
 <img width="374" height="281" alt="tumblr_9998c3f1435ace9df1ca0157953c61f2_6908dee0_400" src="https://github.com/user-attachments/assets/d632d985-0180-467d-a23b-aef55f3e13b3" />
+
+<br/>
+<br/>
+<br/>
+
+<p align="Center"> $${\color{#002576} NEWEST!\ : }$$ </p>
+<p align="Center">  pure rotten light </p>
+<img width="800" height="450" alt="purerottenlight-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/5d63a4a1-77cc-4809-923c-5d54f8e319f2" />
+
 
 </details>
 </div>
