@@ -92,6 +92,8 @@
 
 <p align="center"> <img width="376" height="45" alt="image" src="https://github.com/user-attachments/assets/e21a484e-6a4f-4e28-8359-db21f9a6b272" /> &nbsp; &nbsp; pt-hall-of-media 🏆! </p>
 <p align="center">  <img width="209" height="31" alt="image" src="https://github.com/user-attachments/assets/ec6dcfe9-ac05-4c0b-9c58-4e4f6418a9e2" /> &nbsp; &nbsp; Ponytowns-rewards 🏆! </p>
+<p align="center"> <img width="434" height="40" alt="image" src="https://github.com/user-attachments/assets/3d8e3d59-7a64-4362-a76a-faf5888fcd75" /> &nbsp; &nbsp; pt-fashion 🏆! </p>
+ 
 
 
 </details>
