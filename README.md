@@ -107,8 +107,14 @@
 
 <div align="center">
 <details>
-<summary> $${\color{#002576} gifs }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" />
- </summary>
+<summary> $${\color{#002576} gifs }$$ &nbsp; <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f4851efa-bdbc-48fa-8dd1-84df53b0d566" /> </summary>
+
+<img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/5d3c1290-dcd3-4974-b6f4-6d13d1c65421" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/645c8669-02a4-4263-aed9-324970cb6f12" /> <img width="200" height="117" alt="tumblr_58fde56a37bbe8585a0f9128c2b158e4_de02fbe0_100" src="https://github.com/user-attachments/assets/d7895e92-7f83-4d1f-90b5-181464da9c54" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/089c499a-0602-4dff-b762-8b1e87829c04" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/17a3f4c2-a2cd-4c9d-baff-8b3c1c0a5cd6" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/489c73ff-c1f2-4fcc-80b6-443d577117f3" />
+
+
+
+
+
 
  
 </details>
