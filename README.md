@@ -5,11 +5,11 @@
 <br/>
 
 
- <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" /> &nbsp; madness combat fanatic, marcelo's fan !!!! &nbsp; <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
+ <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" /> &nbsp; madness combat fanatic and similar animations &nbsp; <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, stuff is linked below!  </p>
+<p align="Center"> DreamsAndRJX across most sites, stuff is linked below.  </p>
 <p align="Center"> Back into studying, usually gone most the day so I might not be active 😓. </p>
 
 <br/>
@@ -25,13 +25,12 @@
 <summary> $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" />
  </summary>
 
-<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general or when rushing. No means to be rude but it's a possiblity. </p>
+<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. No means to be rude but I can get irritated easily. </p>
 <p align="Right"> Marcelo from $${\color{#002576}"Bridge\ Mankind\ Collapse"}$$ : major fan. </p>
 <p align="Left"> Radinclus, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all, same to racists, bigots, weirdos, $${\color{#002576} DNI }$$ period. </p>
 <p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
 <p align="Left"> $${\color{#002576} MAJOR\ DNI }$$ radqueer/proship/darkship/harmful paraphiles. $${\color{#002576} all }$$ the same. </p>
-<p align="Right"> I follow $${\color{#002576} main }$$ accounts back, not checking unless I explicity don't trust you. </p>
-<p align="Left"> I don't support the creators of media I enjoy $${\color{#002576} (dandys world,\ etc.,) }$$ and may also just make fits for looks. </p>
+<p align="Right"> I don't support the creators of media I enjoy. </p>
 
  
 </details>
