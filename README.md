@@ -96,7 +96,7 @@
 <br/>
 <br/>
 
-<div align="center">
+<div align="Left">
 <details>
 <summary> <img width="20" height="20" alt="tumblr_91f090a37b17c318bc120da271a7083f_8bee8734_75" &nbsp; src="https://github.com/user-attachments/assets/15af1c67-9bda-446c-9578-bfc6973c5ed4" /> $${\color{#002576} awards }$$ </summary>
 
@@ -110,7 +110,7 @@
 <br/>
 <br/>
 
-<div align="center">
+<div align="Right">
 <details>
 <summary> $${\color{#002576} gifs }$$ &nbsp; <img width="20" height="20" alt="tumblr_1c4421408b4d2cd206f76a641f26d283_8e95182d_75" src="https://github.com/user-attachments/assets/401d88df-40fd-4e18-a5da-40c894098b66" /> </summary>
 
