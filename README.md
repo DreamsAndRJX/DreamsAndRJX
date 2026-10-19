@@ -9,8 +9,8 @@
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, stuff is linked below.  </p>
-<p align="Center"> Back into studying, usually gone most the day so I might not be active 😓. </p>
+<p align="Center"> DreamsAndRJX across most sites, stuff is linked below within the 'links' section. </p>
+<p align="Center"> Back into work/studying, usually gone most the day so I might not be active as much as I usually am. </p>
 
 <br/>
 
@@ -20,32 +20,36 @@
 <br/>
 <br/>
 
-<div align="center">
-<details>
-<summary> $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" />
- </summary>
+<img align="Left" src="https://github.com/user-attachments/assets/9b36ed71-78df-4d53-a82e-44adce949b27" />
 
-<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. No means to be rude but I can get irritated easily. </p>
-<p align="Right"> Marcelo from $${\color{#002576}"Bridge\ Mankind\ Collapse"}$$ : major fan. </p>
-<p align="Left"> Radinclus, Judgement/Paranoia prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all, same to racists, bigots, weirdos, $${\color{#002576} DNI }$$ period. </p>
-<p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
-<p align="Left"> $${\color{#002576} MAJOR\ DNI }$$ radqueer/proship/darkship/harmful paraphiles. $${\color{#002576} all }$$ the same. </p>
-<p align="Right"> I don't support the creators of media I enjoy. </p>
+
+<p align="Center"> ▼ &nbsp; $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" /> </p>
+
+<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. Can irritated easily. </p>
+<p align="Right"> Marcelo from $${\color{#002576}"bridge\ mankind\ collapse"}$$ : major fan. </p>
+<p align="Left"> Radinclus, judge/paranoia prone, SOME fandoms $${\color{#002576} DNI }$$, same to racists, bigots, weirdos. </p>
+<p align="Right"> $${\color{#002576} <13\ IWEC }$$ or $${\color{#002576} DNI }$$ in whole, I'm not weird. </p>
+<p align="Left"> I will sit with my friend's friends if there's a line or group.</p> 
+<p align="Right"> $${\color{#002576} MAJOR\ DNI }$$ radq/pro/dark/harmful paraphiles. $${\color{#002576} All }$$ are the same. </p>
+<p align="Left"> I do not support problematic creators, even if I enjoy the media to a degree. </p>
 
  
 </details>
 </div>
 
 <br/>
+<br/>
+
+
 
 <div align="center">
 <details>
-<summary> <img width="20" height="20" alt="tumblr_661b219e0290c5ac87d4b98d315f50b8_c45f29d1_75" src="https://github.com/user-attachments/assets/b7ece33d-d6ef-4ac9-a838-7fc6dfb71a8e" /> &nbsp; $${\color{#002576} new\ animation\  /\  content\ warning }$$ </summary>
+<summary> <img width="20" height="20" alt="tumblr_661b219e0290c5ac87d4b98d315f50b8_c45f29d1_75" src="https://github.com/user-attachments/assets/b7ece33d-d6ef-4ac9-a838-7fc6dfb71a8e" /> &nbsp; $${\color{#002576} new\ animation\  /\  CONTENT\ WARNING }$$ </summary>
 
 <br/>
 
 <p align="Center"> $${\color{#002576} NEWEST!\ : }$$ </p>
-<p align="Center">  pure rotten light </p>
+<p align="Center"> pure rotten light </p>
 
 <br/>
 
@@ -71,7 +75,7 @@
 <br/>
 <br/>
 
-<p align="Center"> $${\color{#002576} links }$$ &nbsp; <img width="20" height="20" alt="tumblr_8c8ff24da1159bda753995bc55cb822f_878662f1_75" src="https://github.com/user-attachments/assets/e6148af1-e608-44d6-b258-6c962a64525f" </p>
+<p align="Center"> ▼ &nbsp; $${\color{#002576} links }$$ &nbsp; <img width="20" height="20" alt="tumblr_8c8ff24da1159bda753995bc55cb822f_878662f1_75" src="https://github.com/user-attachments/assets/e6148af1-e608-44d6-b258-6c962a64525f" </p>
 
 <br/>
 
@@ -90,6 +94,8 @@
 <img width="3000" height="40" alt="tumblr_7455b3a6beee6b0c11f7b6cfd5d95327_da3e1d3d_2048" src="https://github.com/user-attachments/assets/455e96dd-ec43-4c0d-bda4-7069904bad03" />
 
 <br/>
+<br/>
+<br/>
 
 <div align="center">
 <details>
@@ -98,8 +104,6 @@
 <p align="center"> <img width="376" height="45" alt="image" src="https://github.com/user-attachments/assets/e21a484e-6a4f-4e28-8359-db21f9a6b272" /> &nbsp; &nbsp; pt-hall-of-media 🏆! </p>
 <p align="center">  <img width="209" height="31" alt="image" src="https://github.com/user-attachments/assets/ec6dcfe9-ac05-4c0b-9c58-4e4f6418a9e2" /> &nbsp; &nbsp; Ponytowns-rewards 🏆! </p>
 <p align="center"> <img width="434" height="40" alt="image" src="https://github.com/user-attachments/assets/3d8e3d59-7a64-4362-a76a-faf5888fcd75" /> &nbsp; &nbsp; pt-fashion 🏆! </p>
- 
-
 
 </details>
 </div>
@@ -109,15 +113,9 @@
 
 <div align="center">
 <details>
-<summary> $${\color{#002576} gifs }$$ &nbsp; <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f4851efa-bdbc-48fa-8dd1-84df53b0d566" /> </summary>
+<summary> $${\color{#002576} gifs }$$ &nbsp; <img width="20" height="20" alt="tumblr_1c4421408b4d2cd206f76a641f26d283_8e95182d_75" src="https://github.com/user-attachments/assets/401d88df-40fd-4e18-a5da-40c894098b66" /> </summary>
 
-<img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/5d3c1290-dcd3-4974-b6f4-6d13d1c65421" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/645c8669-02a4-4263-aed9-324970cb6f12" /> <img width="200" height="117" alt="tumblr_58fde56a37bbe8585a0f9128c2b158e4_de02fbe0_100" src="https://github.com/user-attachments/assets/d7895e92-7f83-4d1f-90b5-181464da9c54" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/089c499a-0602-4dff-b762-8b1e87829c04" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/17a3f4c2-a2cd-4c9d-baff-8b3c1c0a5cd6" /> <img width="200" height="117" alt="image" src="https://github.com/user-attachments/assets/489c73ff-c1f2-4fcc-80b6-443d577117f3" />
-
-
-
-
-
-
+more here, later.
  
 </details>
 </div>
@@ -125,11 +123,13 @@
 <br/>
 <br/>
 
-
 <img width="1280" height="641" alt="image (2)_PhotoGrid" src="https://github.com/user-attachments/assets/fbad7c86-d5ef-4fb3-bd88-b2271f0eaa29" />
 
 <br/>
 <br/>
-<br/>
 
 <img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
+
+
+<br/>
+<br/>
