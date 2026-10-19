@@ -4,12 +4,11 @@
 
 <br/>
 
-
  <p align="Center"> <img width="20" height="20" alt="tumblr_c9d3f099f89e38c9c117022b17991b4e_a8ee3922_75" src="https://github.com/user-attachments/assets/f4812fae-9978-4f3c-bec6-9d30c82b76dd" /> &nbsp; madness combat fanatic and similar animations &nbsp; <img width="20" height="20" alt="tumblr_9976c18e4a2ce97c97d5a4d1a927be4e_49e94a58_75" src="https://github.com/user-attachments/assets/797b7d6c-5029-407e-924b-042256f75dc8" /> </p>
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, stuff is linked below within the 'links' section. </p>
+<p align="Center"> DreamsAndRJX across most sites, stuff is linked below within the 'links' section. &nbsp; &nbsp; $${\color{#002576} | }$$ &nbsp; &nbsp; Most people I follow are my friends! </p>
 <p align="Center"> Back into work/studying, usually gone most the day so I might not be active as much as I usually am. </p>
 
 <br/>
