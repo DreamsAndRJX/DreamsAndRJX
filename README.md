@@ -27,7 +27,7 @@
 
 <p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. No means to be rude but I can get irritated easily. </p>
 <p align="Right"> Marcelo from $${\color{#002576}"Bridge\ Mankind\ Collapse"}$$ : major fan. </p>
-<p align="Left"> Radinclus, Judgement prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all, same to racists, bigots, weirdos, $${\color{#002576} DNI }$$ period. </p>
+<p align="Left"> Radinclus, Judgement/Paranoia prone, SOME Fandoms $${\color{#002576} DNI,\ <13\ IWEC }$$ or $${\color{#002576} DNI }$$ at all, same to racists, bigots, weirdos, $${\color{#002576} DNI }$$ period. </p>
 <p align="Right"> I will sit with my friend's friends if there's a line or group.</p> 
 <p align="Left"> $${\color{#002576} MAJOR\ DNI }$$ radqueer/proship/darkship/harmful paraphiles. $${\color{#002576} all }$$ the same. </p>
 <p align="Right"> I don't support the creators of media I enjoy. </p>
@@ -129,17 +129,3 @@
 <br/>
 
 <img width="1433" height="278" alt="image" src="https://github.com/user-attachments/assets/b5bbe226-1215-42db-8b50-0f7241dab060" />
-
-<br/>
-<br/>
-<br/>
-
-omg wait these 2 people are weirdos? 😲
-
-<br/>
-
-<img width="400" height="218" alt="image" src="https://github.com/user-attachments/assets/6c1dfbef-0ba2-4a30-9c9f-d8a9cf14daff" />
-<img width="400" height="218" alt="image" src="https://github.com/user-attachments/assets/af439dca-53ba-45cf-ab50-17efc78bcd56" />
-
-
-
