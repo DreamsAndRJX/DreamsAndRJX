@@ -25,12 +25,12 @@
 <p align="Center"> ▼ &nbsp; $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" /> </p>
 
 <p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. Can irritated easily. </p>
-<p align="Right"> Marcelo from $${\color{#002576}"bridge\ mankind\ collapse"}$$ : major fan. </p>
-<p align="Left"> Radinclus, judge/paranoia prone, SOME fandoms $${\color{#002576} DNI }$$, same to racists, bigots, weirdos, etc,. </p>
-<p align="Right"> $${\color{#002576} <13\ IWEC }$$ or $${\color{#002576} DNI }$$ in whole, I'm not weird. </p>
-<p align="Left"> I will sit with my friend's friends if there's a line or group.</p> 
-<p align="Right"> $${\color{#002576} MAJOR\ DNI }$$ radq/pro/dark/harmful paraphiles. $${\color{#002576} ALL }$$ are the same. </p>
-<p align="Left"> I do not support problematic creators even if I enjoy fanmade media. </p>
+<p align="Right"> marcelo from $${\color{#002576}"bridge\ mankind\ collapse"}$$ : major fan. </p>
+<p align="Left"> radinclus, prone to something, dni to some fandoms, same to racists, bigots, weirdos, etc., </p>
+<p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole. </p>
+<p align="Left"> I will sit with my friend's friends or in groups.</p> 
+<p align="Right"> $${\color{#002576} MAJOR\ DNI }$$ radq/pro/dark/harmful paraphiles/etc., </p>
+<p align="Left"> do not support problematic creators </p>
 
  
 </details>
