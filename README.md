@@ -8,8 +8,8 @@
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, stuff is linked below within the 'links' section. &nbsp; &nbsp; $${\color{#002576} | }$$ &nbsp; &nbsp; Most people I follow are my friends! </p>
-<p align="Center"> Back into work/studying, usually gone most the day so I might not be active as much as I usually am. </p>
+<p align="Center"> DreamsAndRJX across most sites, linked below within the 'links' section. &nbsp; &nbsp; $${\color{#002576} | }$$ &nbsp; &nbsp; most people I follow I know. </p>
+<p align="Center"> back into work/studying, usually gone most the day so I might not be active as much as I usually am. </p>
 
 <br/>
 
