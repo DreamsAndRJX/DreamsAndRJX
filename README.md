@@ -30,7 +30,7 @@
 <p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole. </p>
 <p align="Left"> I will sit with my friend's friends or in groups.</p> 
 <p align="Right"> $${\color{#002576} MAJOR\ DNI }$$ radq/pro/dark/harmful paraphiles/etc., </p>
-<p align="Left"> do not support problematic creators </p>
+<p align="Left"> do not support problematic creators, $${\color{#002576} even\ if }$$ the media is nice. </p>
 
  
 </details>
