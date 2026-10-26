@@ -26,7 +26,7 @@
 
 <p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. idk. </p>
 <p align="Right"> marcelo from $${\color{#002576}"bridge\ mankind\ collapse" }$$ : major fan. </p>
-<p align="Left"> radinclus, $${\color{#002576} DNI }$$ to racists, bigots, weirdos, etc., </p>
+<p align="Left"> "  </p>
 <p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole, thanks. </p>
 <p align="Left"> $${\color{#002576} fanatical\ consumer }$$, madcom, riddler (2022), blooddebt, hlvrai, etc., </p>
 <p align="Right"> what does a $${\color{#002576} liar }$$ do when he's $${\color{#002576} dead? }$$ </p>
