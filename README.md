@@ -24,13 +24,13 @@
 
 <p align="Center"> ▼ &nbsp; $${\color{#002576} info }$$ &nbsp; <img width="20" height="20" alt="tumblr_c8e33461c08e6e6bf1a7eba66150e5d9_4be4bbef_75" src="https://github.com/user-attachments/assets/b4066058-a20a-463e-a2e1-d8e588d15a6e" /> </p>
 
-<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. Can irritated easily. </p>
-<p align="Right"> marcelo from $${\color{#002576}"bridge\ mankind\ collapse"}$$ : major fan. </p>
-<p align="Left"> radinclus, prone to something, dni to some fandoms, same to racists, bigots, weirdos, etc., </p>
-<p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole. </p>
-<p align="Left"> I will sit with my friend's friends or in groups.</p> 
-<p align="Right"> $${\color{#002576} MAJOR\ DNI }$$ radq/pro/dark/harmful paraphiles/etc., </p>
-<p align="Left"> do not support problematic creators, $${\color{#002576} even\ if }$$ the media is nice. </p>
+<p align="Left"> $${\color{#002576} IWC/IWEC }$$ in general. idk. </p>
+<p align="Right"> marcelo from $${\color{#002576}"bridge\ mankind\ collapse" }$$ : major fan. </p>
+<p align="Left"> radinclus, $${\color{#002576} DNI }$$ to racists, bigots, weirdos, etc., </p>
+<p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole, thanks. </p>
+<p align="Left"> $${\color{#002576} fanatical\ consumer }$$, madcom, riddler (2022), blooddebt, hlvrai, etc., </p>
+<p align="Right"> what does a $${\color{#002576} liar }$$ do when he's $${\color{#002576} dead? }$$ </p>
+<p align="Left"> he $${\color{#002576} lies }$$ still. </p>
 
  
 </details>
