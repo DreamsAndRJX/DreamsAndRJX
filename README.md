@@ -28,9 +28,9 @@
 <p align="Right"> marcelo from $${\color{#002576}"bridge\ mankind\ collapse" }$$ major fan! </p>
 <p align="Left"> " if i $${\color{#002576} cleaned\ everything }$$ would you $${\color{#002576} come\ back }$$ ? " </p>
 <p align="Right"> $${\color{#002576} <13\ IW(E)C }$$ or $${\color{#002576} DNI }$$ in whole, beyond it i'm ok. </p>
-<p align="Left"> $${\color{#002576} fanatical }$$ media $${\color{#002576} consumer }$$, pure rotten light, bridge mankind collapse, most $${\color{#002576} madcom }$$ media. </p>
-<p align="Right"> " what does a $${\color{#002576} liar }$$ do when he's $${\color{#002576} dead? }$$ : "</p>
-<p align="Left"> " he $${\color{#002576} lies }$$ still. " </p>
+<p align="Left"> $${\color{#002576} fanatical }$$ media $${\color{#002576} consumer }$$, pure rotten light, bmc. most $${\color{#002576} madcom }$$ media. </p>
+<p align="Right"> " I’m so $${\color{#002576} grateful }$$ for $${\color{#002576} everything }$$ that has happened to me." </p>
+<p align="Left"> " ... I love this $${\color{#002576} beautiful\ feeling }$$ … and I want $${\color{#002576} everybody }$$ to feel the $${\color{#002576} same }$$ way. " </p>
 
  
 </details>
@@ -43,7 +43,7 @@
 
 <div align="center">
 <details>
-<summary> <img width="20" height="20" alt="tumblr_661b219e0290c5ac87d4b98d315f50b8_c45f29d1_75" src="https://github.com/user-attachments/assets/b7ece33d-d6ef-4ac9-a838-7fc6dfb71a8e" /> &nbsp; $${\color{#002576} new\ animation\  /\  CONTENT\ WARNING }$$ </summary>
+<summary> <img width="20" height="20" alt="tumblr_661b219e0290c5ac87d4b98d315f50b8_c45f29d1_75" src="https://github.com/user-attachments/assets/b7ece33d-d6ef-4ac9-a838-7fc6dfb71a8e" /> &nbsp; $${\color{#002576} new\ animation }$$ &nbsp; &nbsp; &nbsp; CONTENT WARNING. </summary>
 
 <br/>
 
@@ -52,15 +52,10 @@
 
 <br/>
 
-<img width="640" height="360" alt="purerottenlight-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/5d63a4a1-77cc-4809-923c-5d54f8e319f2" />
+<img width="320" height="180" alt="purerottenlight-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/5d63a4a1-77cc-4809-923c-5d54f8e319f2" />
+<img width="320" height="180" alt="image" src="https://github.com/user-attachments/assets/21fbfbbf-3c8a-4cb9-9c0e-ef0769e84cb3" />
+<img width="320" height="180" alt="gets really fucking angry" src="https://github.com/user-attachments/assets/b8b70279-1c35-415c-9c62-32f3901c6b69" />
 
-<br/>
-
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/21fbfbbf-3c8a-4cb9-9c0e-ef0769e84cb3" />
-
-<br/>
-
-<img width="640" height="360" alt="gets really fucking angry" src="https://github.com/user-attachments/assets/b8b70279-1c35-415c-9c62-32f3901c6b69" />
 
 </details>
 </div>
