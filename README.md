@@ -8,7 +8,7 @@
 
 <p align="Center"> $${\color{#002576} ୨ৎ\ —\  ⊹ ࣪ ˖ ໒꒱\ ୨ৎ }$$ </p>
 
-<p align="Center"> DreamsAndRJX across most sites, linked below within the 'links' section. &nbsp; &nbsp; $${\color{#002576} | }$$ &nbsp; &nbsp; follow back main account. </p>
+<p align="Center"> DreamsAndRJX across most sites, linked below within the 'links' section. &nbsp; &nbsp; $${\color{#002576} | }$$ &nbsp; &nbsp; i follow back main accounts. </p>
 <p align="Center"> back into work/studying, usually gone most the day so I might not be active as much as I usually am. </p>
 
 <br/>
