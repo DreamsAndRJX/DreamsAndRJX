@@ -100,6 +100,8 @@
 <p align="center"> <img width="434" height="40" alt="image" src="https://github.com/user-attachments/assets/3d8e3d59-7a64-4362-a76a-faf5888fcd75" /> &nbsp; &nbsp; pt-fashion 🏆! </p>
 <p align="center"> <img width="539" height="39" alt="image" src="https://github.com/user-attachments/assets/f9b08096-ad8a-438f-bf02-a8a1f3228117" /> &nbsp; &nbsp; Ponyhonors 🏆! </p>
 <p align="center"> <img width="360" height="35" alt="image" src="https://github.com/user-attachments/assets/729c18e6-3c74-4f77-8553-9fcc468ffa9d" /> &nbsp; &nbsp; pts-r0ttingeyes 🏆! </p>
+<p align="center"> <img width="408" height="42" alt="image" src="https://github.com/user-attachments/assets/226c6883-2082-4794-84e4-f02f9242a935" /> &nbsp; &nbsp; $${\color{#002576} creepy-town-hall }$$ 🏆! </p>
+
 
 
 
