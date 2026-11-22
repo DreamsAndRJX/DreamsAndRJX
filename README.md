@@ -104,6 +104,8 @@
 <p align="center"> <img width="360" height="35" alt="image" src="https://github.com/user-attachments/assets/729c18e6-3c74-4f77-8553-9fcc468ffa9d" /> &nbsp; &nbsp; pts-r0ttingeyes 🏆! </p>
 <p align="center"> <img width="438" height="39" alt="image" src="https://github.com/user-attachments/assets/c8d7984a-a220-417a-853d-9e3cf86ac2a9" /> &nbsp; &nbsp; $${\color{#002576} creepy-town-hall }$$ 🏆! </p>
 <p align="center"> <img width="408" height="42" alt="image" src="https://github.com/user-attachments/assets/226c6883-2082-4794-84e4-f02f9242a935" /> &nbsp; &nbsp; $${\color{#002576} creepy-town-hall }$$ 🏆! </p>
+<p align="center"> <img width="457" height="38" alt="image" src="https://github.com/user-attachments/assets/421e97d1-d5bd-4c6c-b307-1627ccf80778" /> &nbsp; &nbsp; pt-everypony 🏆! </p>
+
 
 
 
