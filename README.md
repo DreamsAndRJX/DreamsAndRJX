@@ -105,6 +105,8 @@
 <p align="center"> <img width="438" height="39" alt="image" src="https://github.com/user-attachments/assets/c8d7984a-a220-417a-853d-9e3cf86ac2a9" /> &nbsp; &nbsp; $${\color{#002576} creepy-town-hall }$$ 🏆! </p>
 <p align="center"> <img width="408" height="42" alt="image" src="https://github.com/user-attachments/assets/226c6883-2082-4794-84e4-f02f9242a935" /> &nbsp; &nbsp; $${\color{#002576} creepy-town-hall }$$ 🏆! </p>
 <p align="center"> <img width="457" height="38" alt="image" src="https://github.com/user-attachments/assets/421e97d1-d5bd-4c6c-b307-1627ccf80778" /> &nbsp; &nbsp; pt-everypony 🏆! </p>
+<p align="center"> <img width="424" height="44" alt="image" src="https://github.com/user-attachments/assets/dd7bcca5-421c-4994-9ab0-2f287ae78315" /> &nbsp; &nbsp; pony-town-nominations 🏆! </p>
+<p align="center"> <img width="428" height="41" alt="image" src="https://github.com/user-attachments/assets/f94a02c1-2df2-4d76-a352-ce55911aceae" /> &nbsp; &nbsp; pony-town-nominations 🏆! </p>
 
 
 
